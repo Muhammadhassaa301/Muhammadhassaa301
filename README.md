@@ -40,4 +40,4 @@ success and process efficiency.Strong troubleshooting and problem-solving skills
 [![visitors](https://visitor-badge.laobi.icu/badge?page_id=Muhammadhassaa301.Muhammadhassaa301)
 
 <h3 align="left">Connect with me:</h3>
-<a href="https://www.linkedin.com/in/muneeb-sikandar-64b569179/" target="blank"><img align="center" src="https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/linkedin.svg" alt="Muhammad Waqar 🇵🇰" height="30" width="40" /></a>
+<a href="https://www.linkedin.com/in/muahmmad-hassaan-arain-456a4021b/" target="blank"><img align="center" src="https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/linkedin.svg" alt="Muhammad Hassaan 🇵🇰" height="30" width="40" /></a>
